@@ -1,2 +1,0 @@
-# plastics
-Plastics! The Podcast
